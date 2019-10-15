@@ -1,1 +1,0 @@
-# South-Altyn-Orogen
